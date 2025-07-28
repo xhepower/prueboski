@@ -1,0 +1,2 @@
+# prueboski
+[rueba curso platzi
